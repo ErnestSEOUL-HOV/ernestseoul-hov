@@ -1,4 +1,4 @@
-###  🏮 Hi there, I'm Ernest 
+## 🏮 Hi there, I'm Ernest 
 
 I'm a 21-year-old IT-specialist based in Russia.
 
