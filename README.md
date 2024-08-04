@@ -1,6 +1,6 @@
 ## 🏮 Hi there, I'm Ernest 
 
-- I'm a 21-year-old IT-specialist (System Administrator) based in Russia.
+- I'm a 22-year-old IT-specialist (Tech Support Engineer) based in Russia, Company BIOCAD.
 
 ## 🏮
 
