@@ -8,7 +8,7 @@
 
 ## 🏮 Contact
 
- For a quick response, DM me on [Instagram](https://www.instagram.com/goodmooran/). 
+ For a quick response, DM me on [TG](https://t.me/salakhovernest/). 
  
  For professional inquiries, reach out via email at [ernestsalakhov404@gmail.com](mailto:ernestsalakhov404@gmail.com). 
 
