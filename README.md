@@ -1,12 +1,12 @@
-## 🥷 Hello, I'm Ernest 
+## Hello, I'm Ernest 
 
 - A 22-years-old IT-specialist (Tech Support Engineer) based in Russia, Company VK.
 
-## 🥷
+## 🧗
 
 - 2025.
 
-## 🥷 Contact
+## Contact
 
  For a quick response, text me on [TG](https://t.me/slkhvernest/). 
  
